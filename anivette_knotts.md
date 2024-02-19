@@ -1,0 +1,3 @@
+One thing that was very new to me in the text was looking at music from the perspective political structures. I have never before considered looking at musical ensembles' power structures. Another interesting thing for me was the table shown in text, I have not seen musical genres being compared in that way before.
+
+One thing that I was familiar with is the idea of giving more freedom to the performers, as I have some experience in free improvisation. 
